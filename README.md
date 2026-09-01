@@ -6,5 +6,4 @@
 
 💞️ I’m looking to collaborate on any project
 
-📫 How to reach me : ksowmya0228@gmail.com
 
